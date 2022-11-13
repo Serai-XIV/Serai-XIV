@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Serai-XIV
+- 👀 I’m interested in Logic, Programming, and Computer science
+- 🌱 I’m currently learning Python, and studying CS
+- 💞️ I’m looking for other to help me with my discord bot
+- 📫 You can reach me at discord --> @Serai ∀𝑥 Omega#3053 
